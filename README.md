@@ -1,4 +1,4 @@
-# Product Research Intern | AXIS AMC (Asset Management Company) LTD. | Jul’24 - Aug’24
+# Product Research Internship | AXIS AMC (Asset Management Company) LTD. | Jul’24 - Aug’24
 
 ## Obejective
 - Analyse the social media presence and website of Axis Mutual Fund to assess engagement and user experience.
